@@ -2,7 +2,7 @@
 - 👀 I’m interested in searching for new things 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me bfarhad@082@gmail.com
+- 📫 How to reach me bfarhad082@gmail.com
 +93 786223448
 
 <!---
